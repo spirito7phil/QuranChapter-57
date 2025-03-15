@@ -1,6 +1,6 @@
-# Quran Chapter 1 | [QuranBookk.com](http://www.quranbookk.com/) 
+# [Quran Chapter 57](https://www.quranbookk.com/quran/search?q=57:) | QuranBookk.com 
 
-For more infos, Click [QuranBookk - 1](https://www.quranbookk.com/quran/search?q=1:) to Search at [QuranBookk.com](http://quranbookk.com/)
+For more infos, Click [QuranBookk - 57](https://www.quranbookk.com/quran/search?q=57:) to Search at [QuranBookk.com](http://quranbookk.com/)
 
 
 # QuranBookk.com - Quran | [QuranBook](https://www.quranbookk.com)
